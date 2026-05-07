@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-05-07 16:25 (IR Time)
+- 📥 **[Damiano David - Voices ｜ Live From Vevo Studios.mp4](https://github.com/azinros/Yourubeazin/raw/main/dl/Damiano%20David%20-%20Voices%20%EF%BD%9C%20Live%20From%20Vevo%20Studios.mp4)**
+
+
 ### 📅 2026-05-01 18:30 (IR Time)
 - 📥 **[efYuq8uc510pKSLgph9h+prHhV-L4FGs.mp4.zip](https://github.com/EdvardNA-999/0x00-dl/raw/main/dl/efYuq8uc510pKSLgph9h%2BprHhV-L4FGs.mp4.zip)**
 - 📥 **[efYuq8uc510pKSLgph9h+prHhV-L4FGs.mp4.z01](https://github.com/EdvardNA-999/0x00-dl/raw/main/dl/efYuq8uc510pKSLgph9h%2BprHhV-L4FGs.mp4.z01)**
