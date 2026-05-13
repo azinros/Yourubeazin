@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-05-14 00:24 (IR Time)
+- 📥 **[Canine orthopaedic examination.mp4](https://github.com/azinros/Yourubeazin/raw/main/dl/Canine%20orthopaedic%20examination.mp4)**
+
+
 ### 📅 2026-05-14 00:16 (IR Time)
 - 📥 **[Diagnosing Cruciate Failure in Dogs - Manual Tests.mp4](https://github.com/azinros/Yourubeazin/raw/main/dl/Diagnosing%20Cruciate%20Failure%20in%20Dogs%20-%20Manual%20Tests.mp4)**
 
